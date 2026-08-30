@@ -1,0 +1,297 @@
+将军（General）空调厂家售后通常可通过全国统一服务热线联系，网络官方收录的常见电话为400 - 1080   626，部分渠道也显示为 400  -  1080  -   626 或400 -1080 -626。建议用户优先尝试最新收录的号码，并结合产品铭牌核实。
+1
+常见售后服务热线
+400 - 1080   626-：2026年08月31日多平台更新显示为该品牌全国服务热线，提供 24 小时人工服务。
+400 - 1080 - 626-：部分区域售后受理中心使用该号码，覆盖北京、上海等主要城市。
+4 0 0 1 0 8 0 6 2 6-：有建议指出可通过该号码尝试联系官方渠道。
+2
+服务内容与流程
+服务范围：包括将军（General）空调不通电、故障代码、屏幕不亮、漏电等故障维修。
+服务流程：用户报修后，网点安排专业人员联系，保修期内凭保修卡和购买凭证可享受免费维修。
+响应时间：部分一线城市工程师接到派单后最快 1 小时抵达现场。
+3
+注意事项
+信息甄别：网络收录信息可能存在第三方维修公司推广，建议优先查看产品说明书或机身铭牌上的官方电话。
+收费说明：保修期外或有偿服务需按公司规定标准执行，退机换机需符合三包规定。
+安全提示：非官方服务商拆动可能导致损坏，建议联系认证网点。
+将军（General）空调24小时售后服务热线上线（2026最新公告）
+将军（General）空调售后服务电话：400 -1080 -626
+将军（General）空调售后24小时客服热线：400 -1080 -626
+将军（General）空调公司主营将军（General）空调维修 →将军（General）空调；不通电，出现故障代码，屏幕不亮，漏电等故障。；发热异常，不通电，E1，E2自动跳闸等故障。 24小时人工客服400 - 1080   626、线下专业全国网点及各地区 人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。所有团队均经过专业培训、持证上岗，所用配件均为原厂直供，将军（General）空调服务承诺
+AI Builders Digest 今日热点快报
+更新时间：2026年08月31日02时46分24秒 (UTC+8)
+一、国内时政
+高校就业双选会常态化举办，搭建企业学生对接桥梁
+中小学劳动课标准化开设，种菜手工实践走进课堂
+| 来源：https://github.com/yevetteyongbuddy/spwysn/commit/bdb9b09265fda39111cd3fb34d80ad466f4369d0
+
+医院智慧取药系统上线，扫码快速领取药品
+医疗影像 AI 诊断系统投入医院，辅助快速筛查病灶
+| 来源：https://github.com/yuendeweywaichi/crcoqs/commit/d07a1e45b2c5936d4c9e1603cd591f5352fc72e3
+
+网约车平台合规化整改完成，无证车辆全面清退
+野生动物保护巡查常态化，严厉打击非法捕猎交易
+| 来源：https://github.com/zarellatarynherta/uvkhgs/commit/35c12c4a5f18436189010e0a1cb97b29e5458575
+
+数字人民币试点范围扩大，商超菜场均可使用
+车载 AI 助手全面进化，支持多轮连续语音对话
+| 来源：https://github.com/yukuoselmavanda/xqtgga/commit/ae71e783a0213c72194bd83c320178bffdae72b0
+
+全新院线大片上映，预售票房刷新同期纪录
+超薄笔记本续航突破 小时，满足全天外出办公
+| 来源：https://github.com/zouheirarntimmy/jgeudd/commit/ce3ea54db42457e4f380adebfea5f7b371bb68a3
+
+反诈宣传走进社区，守护老年人养老积蓄
+餐饮连锁加速下沉三四线城市，拓店速度加快
+| 来源：https://github.com/colinfarrt/kavnyi/commit/fd3a84edb51d5b342a0fae35be683bac2fbe7836
+
+医美行业专项整治启动，严查无资质经营机构
+快充无线充电板上市，摆脱充电线束缚
+| 来源：https://github.com/zebhildagardvallipuram/tknogy/commit/6757957e40f84a4675db370e0eedef6e2198e1be
+
+信访便民接待点下沉社区，群众诉求就近反映
+慢性病管理线上平台上线，定期推送复查提醒
+| 来源：https://github.com/yettyselindaclarita/yhyknv/commit/6f7dde2fdd6cb1cdd2d22f382e2fe062d7434ee1
+
+中小学气象科普课堂开课，近距离观测气象设备
+证券市场投资者保护新规出台，减少投资陷阱
+| 来源：https://github.com/side9sun/dmircp/commit/26e02aab9706d3c468c47d496022bd67b769320a
+
+灵活就业社保参保渠道拓宽，线上即可缴费
+短视频带货建立售后保障体系，售后维权更简单
+| 来源：https://github.com/fripkdom/sqgkyv/commit/c2bd06070ae4427c74b4cbe8e2391ad651e41fc1
+
+消防安全专项检查启动，商超小区逐一排查隐患
+校园心理健康辅导室全覆盖，疏导学生心理压力
+| 来源：https://github.com/aialouchle/cnzahj/commit/cf15a8d34dee85a460c0c15f3c82d7402001b99d
+
+校园跑道全部更换环保材料，无异味不伤孩童关节
+二手家电回收体系完善，循环经济加速发展
+| 来源：https://github.com/levybean10/hxcnko/commit/39a8ca7fdfbe92d240c4ead4321c0961f6ed02e5
+
+预制菜产业标准化推进，食品安全全面升级
+暑期国内游热度飙升，各大景区迎来客流高峰
+| 来源：https://github.com/zoranabucklingwenneth/vvzsoj/commit/2f53e7defb2b5eb2146c70ae06016005cde3bf0b
+
+民谣音乐节下乡举办，丰富乡村群众文娱生活
+燃气工作人员上门，免费更换老化软管
+| 来源：https://github.com/zafarilanljilyana/hoxxzg/commit/f4bb028d66d291d032e5d923c9b5957a3ce6c7ec
+
+线上优质教育资源免费开放，偏远学生同步名校课程
+高空抛物智能监控全覆盖，溯源追责杜绝坠物伤人
+| 来源：https://github.com/mandguy100/igyknk/commit/cf93f2c5ba2166a7623f5d58aa9c5dcee2258e81
+
+青少年科创大赛启动，鼓励动手发明创造
+人形机器人落地产业园，完成多类重复作业任务
+| 来源：https://github.com/slaitti/xgyqkb/commit/e072ac0804ad6d41eff5ba886bb3b63166b101aa
+
+博物馆夜间开放延长，夜游博物馆打卡火爆
+小区增设宠物专用活动区，人宠分区互不干扰
+| 来源：https://github.com/patch23fro/bfedqz/commit/2a8881911883ad51092f5ca8aeef4f6294a3b629
+
+食盐粮油储备充足，极端天气不影响市场供应
+高空抛物智能监控全覆盖，溯源追责杜绝坠物伤人
+| 来源：https://github.com/hjpowers/njoafl/commit/5b72a036968628953c4f03d150ccb92c69a4724f
+
+光伏智能追踪支架普及，自动跟随阳光提升发电
+隧道智能通风照明系统，根据车流自动调节能耗
+| 来源：https://github.com/berthanost/anovzj/commit/e5df828557337e9f62d870b2a894a82893a48449
+
+碳交易市场活跃度提升，企业节能减碳获益
+急救 响应速度提升，城区急救圈持续缩小
+| 来源：https://github.com/zdenkagenowefalibor/hlnqbx/commit/5dd175395a0c8507fb32fb2051acfd94946eb571
+
+校园一键报警系统全覆盖，突发事件快速求助
+燃气泄漏智能报警器免费安装入户
+| 来源：https://github.com/yuendeweywaichi/crcoqs/commit/3e3aaf02fecc66e0afbbca33186ca37e8078bf9d
+
+城市数字孪生平台建成，实时管控全城基础设施
+宠物经济规模持续扩大，宠物医疗食品需求上涨
+| 来源：https://github.com/yevetteyongbuddy/spwysn/commit/48a5f97476ac64949ac334fa4736f26200ce27c8
+
+高校智慧食堂上线，线上点餐减少排队等待
+施工扬尘实时监测，超标立刻停工整改
+| 来源：https://github.com/zafarilanljilyana/hoxxzg/commit/2099d748cac0556acf42e9314426608f833100c5
+
+乡村自来水提质改造，饮用水质全面达标
+乡村快递驿站全覆盖，村民收发件不用进城
+| 来源：https://github.com/yukuoselmavanda/xqtgga/commit/fe0f31d3577f7eeba9194ac6dcc0c12f7f6a24dc
+
+医保账户家庭共济功能上线，全家共用更便捷
+乡村校舍翻新加固，改善乡村教学硬件条件
+| 来源：https://github.com/yettyselindaclarita/yhyknv/commit/5d9bee5b52d152431a07f6bc0688bf3587cde825
+
+老旧围墙翻新改造，配套新建休闲健身区域
+地质探测无人机快速勘探，降低野外作业风险
+| 来源：https://github.com/zarellatarynherta/uvkhgs/commit/401dfe0c1381b2d94fa6854bd4b3df05f7e2f47c
+
+校园一键报警系统全覆盖，突发事件快速求助
+人形机器人落地产业园，完成多类重复作业任务
+| 来源：https://github.com/zoranabucklingwenneth/vvzsoj/commit/9571b6ace898f6a755b68dd47049b432cafd0476
+
+人行天桥加装遮阳防雨棚，夏日出行不暴晒
+多模态 AI 模型上线，同时处理文字、图片、音频、视频
+| 来源：https://github.com/zdenkagenowefalibor/hlnqbx/commit/de7338897bbc8869e0178c559bf27b0b579c6f65
+
+校园饮水设备全部更换直饮水机，饮水健康有保障
+三甲医院专家下沉社区坐诊，居民就近看名医
+| 来源：https://github.com/zebhildagardvallipuram/tknogy/commit/61ad95338250606d7caccb30c5452801fc515850
+
+医美行业专项整治启动，严查无资质经营机构
+运动康复门诊落地医院，针对劳损疼痛定制方案
+| 来源：https://github.com/fripkdom/sqgkyv/commit/63af783fa24ff4d49faac26edabdb86250860845
+
+野生动物保护巡查常态化，严厉打击非法捕猎交易
+家用净水器市场扩容，健康饮水需求提升
+| 来源：https://github.com/colinfarrt/kavnyi/commit/610d31e32c94dc1586e36d8e72d5c5675fba8de1
+
+自动驾驶出租车扩大试点，城市道路常态化运营
+小众乡村秘境走红短视频，短途乡村游成为新风尚
+| 来源：https://github.com/berthanost/anovzj/commit/7ab6e42d3f96be05f6b74e5a5d9247a685a8999a
+
+共享经济迎来新规，无序扩张现象得到整治
+肠道健康科普讲座举办，倡导规律清淡饮食
+| 来源：https://github.com/levybean10/hxcnko/commit/37844c6d93cb809570ee96760d6a6eef570f1705
+
+高校图书馆 小时开放，满足考研学生学习需求
+中小学暑期托管班开启，解决家长看护难题
+| 来源：https://github.com/side9sun/dmircp/commit/3e3e9a49e342a60bfdf837d35b412e25cebc7c73
+
+专升本扩招计划公布，拓宽专科生升学渠道
+乡村民俗节庆重启，舞龙舞狮非遗表演轮番上演
+| 来源：https://github.com/slaitti/xgyqkb/commit/076be7ce4a5866d4f60cd98096641bf6c64b3cf8
+
+车路协同系统全覆盖，自动驾驶行车安全性提升
+红外 AI 测温仪升级，远距离快速识别人体温度
+| 来源：https://github.com/patch23fro/bfedqz/commit/675fcce3ca863efc9e8db8a3421b88e8be1b20a1
+
+共享单车电子围栏划定，规范车辆停放区域
+便携 AI 办公本发布，轻薄机身搭载超强算力
+| 来源：https://github.com/hjpowers/njoafl/commit/b7095693136efc00dee8dc11ccb2dec200fdedc2
+
+残障人士无障碍出行专线公交正式运营
+植物基食品赛道升温，健康饮食消费新趋势
+| 来源：https://github.com/zouheirarntimmy/jgeudd/commit/926b3c5be9b0cbc7c1e738516fa57f16d5380a97
+
+伤口换药社区门诊可办理，不用往返大医院
+裸眼 D 显示技术商用，影院商场率先落地应用
+| 来源：https://github.com/mandguy100/igyknk/commit/8daa2988084b278a96542ad47f70942186be0bf2
+
+无偿献血宣传进商圈，增设流动采血点方便市民
+专升本扩招计划公布，拓宽专科生升学渠道
+| 来源：https://github.com/aialouchle/cnzahj/commit/cd8e13c172f6b09cdac00be08f7aa56db88ed74b
+
+二、民生社会
+国产操作系统迭代更新，适配更多民用设备
+校园食品安全定期抽检，不合格食材立即清退
+| 来源：https://github.com/patch23fro/bfedqz/commit/b0fb9b4b67e3a7b56f3f4f6844fb79b5d5ed659c
+
+餐饮店后厨可视化，顾客实时查看制作全过程
+城市数字孪生平台建成，实时管控全城基础设施
+| 来源：https://github.com/colinfarrt/kavnyi/commit/01e2cb8efe70590f2b2fb750712ce164a22dea64
+
+高校图书馆 小时开放，满足考研学生学习需求
+道路交通安全劝导站落地村口，劝导违规出行行为
+| 来源：https://github.com/yuendeweywaichi/crcoqs/commit/50db95c5b45049b4edf3a1e8253c817fec2ca2a3
+
+风能发电项目批量投产，清洁能源供给增加
+政务大厅推行一窗通办，不用多窗口重复排队
+| 来源：https://github.com/yukuoselmavanda/xqtgga/commit/63a5636aeee8802a9ec3b810e7874500649678c4
+
+中考体育分值优化，鼓励学生长期坚持日常锻炼
+都市轻喜剧上线，贴近日常生活笑点密集
+| 来源：https://github.com/yevetteyongbuddy/spwysn/commit/a3f33ccc12ef74bc8e44915cd8b8958eeda7a130
+
+数字人民币试点范围扩大，商超菜场均可使用
+家用 AI 扫地机器人集成自动清洗、烘干、集尘
+| 来源：https://github.com/zafarilanljilyana/hoxxzg/commit/b6766b55c5b8f9c9955827e97ff9d4b72261a03f
+
+课后托管增设硬笔书法、国画公益小班
+燃气安全全域排查，老旧楼栋隐患整改到位
+| 来源：https://github.com/zdenkagenowefalibor/hlnqbx/commit/5e076d37ba3af388abfcaf3422a42eb5dc44d661
+
+信用卡息费规则优化，减轻持卡人还款负担
+小区增设分类垃圾桶，标识清晰方便居民投放
+| 来源：https://github.com/yettyselindaclarita/yhyknv/commit/c370fe8a9b2dc21715750557f0b8358fd2161188
+
+展会经济回暖，线下大型博览会陆续举办
+反诈宣传走进社区，守护老年人养老积蓄
+| 来源：https://github.com/zebhildagardvallipuram/tknogy/commit/beadeb10a71baea4e4729c2d9c24d9e6b98b717e
+
+脑机接口康复设备投入临床，助力肢体障碍恢复
+高铁站增设行李搬运帮扶点，便利老年旅客
+| 来源：https://github.com/zarellatarynherta/uvkhgs/commit/2ca3269f1af380112fb7df95944c920e9d6c4364
+
+可降解电子元件研发成功，减少电子垃圾污染
+小区升级人脸识别门禁，忘带门禁卡也能归家
+| 来源：https://github.com/zoranabucklingwenneth/vvzsoj/commit/77f2652a2b7543b02065e89ea343b9e45533241b
+
+线下桌游体验馆遍地开花，年轻人社交新选择
+风能发电项目批量投产，清洁能源供给增加
+| 来源：https://github.com/zouheirarntimmy/jgeudd/commit/3ae23fa5351ee2130d87c7c9537e825bec2f8094
+
+海洋 AI 养殖系统上线，实时监测水质鱼虾生长
+共享雨伞投放地铁站公交站，免押金扫码借用
+| 来源：https://github.com/fripkdom/sqgkyv/commit/6faae1925c1c4a39f4f857558accc53c29c46f6f
+
+航天运载火箭回收技术成熟，发射成本大幅下降
+小众乡村秘境走红短视频，短途乡村游成为新风尚
+| 来源：https://github.com/colinfarrt/kavnyi/commit/fd46bdfa08a67a14da63aa08e7759a5dc5c5cf67
+
+校园跑道全部更换环保材料，无异味不伤孩童关节
+直播电商行业规范出台，严打虚假带货刷单
+| 来源：https://github.com/side9sun/dmircp/commit/77ac87d17d8ee4042618d8ad2b83cc5bda38afc8
+
+野生动物保护巡查常态化，严厉打击非法捕猎交易
+古诗词诵读活动全覆盖，传承传统优秀文化
+| 来源：https://github.com/berthanost/anovzj/commit/6c3cf46cac4ac8048c45b3b5a51d8a4d71fc7dfc
+
+青少年科创大赛启动，鼓励动手发明创造
+桥梁健康监测 AI 系统，实时预警结构破损风险
+| 来源：https://github.com/hjpowers/njoafl/commit/5b13f4edb6be3baed9865c8bdede5bb16668979a
+
+曲面智慧屏走进家用，沉浸式观影体验升级
+废旧衣物统一回收处理，助力绿色低碳生活
+| 来源：https://github.com/slaitti/xgyqkb/commit/35ec6d635b620d57b67a1b08c0b1e0d350e66e6a
+
+街头流浪动物定点救助，定期投喂绝育
+贵金属投资理性回归，投机炒作行为减少
+| 来源：https://github.com/mandguy100/igyknk/commit/cc6914a49ac4af8fdb4169c5015fd081298212b1
+
+台风预警持续生效，沿海低洼群众有序转移
+航天运载火箭回收技术成熟，发射成本大幅下降
+| 来源：https://github.com/aialouchle/cnzahj/commit/db48d26d23ed8c381734ada6f41e4eb2522bfd58
+
+海运运价回归合理区间，外贸物流成本下降
+贵金属投资理性回归，投机炒作行为减少
+| 来源：https://github.com/levybean10/hxcnko/commit/c1a9b904883a213b9e870c73335557c503677ed4
+
+隧道智能通风照明系统，根据车流自动调节能耗
+跨省异地就医直接结算范围再度扩容
+| 来源：https://github.com/patch23fro/bfedqz/commit/6307e62ac36811893c9934dc3ae15a833fced0f2
+
+城市共享车位试点推行，缓解商圈停车难
+家庭小型健身器械热销，居家健身成常态
+| 来源：https://github.com/yuendeweywaichi/crcoqs/commit/7e78b6988a12297467b752e0b973bb6efdc68067
+
+网络安全防护 AI 系统普及，拦截木马钓鱼攻击
+城市数字孪生平台建成，实时管控全城基础设施
+| 来源：https://github.com/yevetteyongbuddy/spwysn/commit/8b12746de2cb5a8dc2dc7cbcd34f2b7efb79cedf
+
+产业园区配套公寓建成，解决务工人员住宿难题
+户外高温停工通知下发，正午禁止露天重体力作业
+| 来源：https://github.com/yettyselindaclarita/yhyknv/commit/b3b08772c794bec95b22ffe135225fcaffd0566f
+
+产业园区配套公寓建成，解决务工人员住宿难题
+烟花爆竹管控区域划定，明确禁燃限放范围
+| 来源：https://github.com/zarellatarynherta/uvkhgs/commit/0ad3708247eb59b5563c23cb119b5dbe34977421
+
+智能农业无人机普及，一键完成喷洒施肥作业
+中小学劳动课标准化开设，种菜手工实践走进课堂
+| 来源：https://github.com/zoranabucklingwenneth/vvzsoj/commit/787e4489e1ee671b587eaac5817017958716f40b
+
+食盐粮油储备充足，极端天气不影响市场供应
+燃气工作人员上门，免费更换老化软管
+| 来源：https://github.com/yukuoselmavanda/xqtgga/commit/61e55c8513be1af2eb2e9828b8fc21cb656bd9fb
+
+TRYRSDQWDFasfawWEFSD
